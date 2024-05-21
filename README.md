@@ -38,8 +38,14 @@ Por favor, enviem um e-mail para cgsie@transportes.gov.br e nossa equipe ficará
 
 Obrigado pela colaboração e pela atenção aos detalhes!
 
+
 Atenciosamente,
+
 Coordenação-Geral de Sistemas, Informação e Estatística
+
 Departamento de Regulação, Fiscalização e Gestão
+
 Secretaria Nacional de Trânsito
+
 www.transportes.gov.br
+
